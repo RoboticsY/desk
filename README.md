@@ -13,7 +13,7 @@ U-POWER ゲーミングデスク
 
 デスクが中央で半分に割れているので、デスクマットは必須(付属品あり)
 
-[Amazon](https://www.amazon.co.jp/gp/product/B096RSJHTS/ref=ppx_yo_dt_b_asin_title_o04_s00?ie=UTF8&th=1)
+[Amazon](https://www.amazon.co.jp/gp/product/B096RSJHTS/ref=ppx_yo_dt_b_asin_title_o04_s00?ie=UTF8&th=1){:target="_blank" rel="noopener"}
 
 <a href="https://www.amazon.co.jp/gp/product/B096RSJHTS/ref=ppx_yo_dt_b_asin_title_o04_s00?ie=UTF8&th=1" target="_blank">Amazon</a>
 
